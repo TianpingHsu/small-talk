@@ -13,3 +13,6 @@ learn small talk skills and cultivate your confidence
 
 
 明确问题，考虑方案，执行
+
+保持好奇，身段放软（开的起玩笑，脸皮是最不值钱的）
+
